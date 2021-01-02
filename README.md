@@ -1,2 +1,2 @@
-# recorded-of-Jing
-The recorded of # in NUC
+# records-of-Jing
+The records of # in NUC
